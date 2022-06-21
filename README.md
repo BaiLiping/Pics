@@ -8,6 +8,11 @@
 ![1](/winter3.jpg)
 ![1](/winter4.jpg)
 
+![1](/summer1.jpg)
+![1](/summer2.jpg)
+![1](/summer3.jpg)
+![1](/summer4.jpg)
+
 ![1](/graduation1.jpg)
 ![1](/graduation2.jpg)
 ![1](/graduation3.jpg)

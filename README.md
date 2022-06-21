@@ -21,4 +21,8 @@
 ![1](/graduation5.jpg)
 ![1](/graduation6.jpg)
 
+![1](/me1.jpeg)
+![1](/me2.jpeg)
+![1](/me3.jpeg)
+
 ![1](/all-the-worlds-money.png)

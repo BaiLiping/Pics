@@ -14,6 +14,8 @@
 ![1](/summer4.jpg)
 ![1](/summer5.jpg)
 ![1](/summer6.jpg)
+![1](/summer7.jpg)
+![1](/summer8.jpg)
 ![1](/graduation1.jpg)
 ![1](/graduation2.jpg)
 ![1](/graduation3.jpg)
@@ -26,4 +28,3 @@
 ![1](/me4.jpeg)
 ![1](/me3.jpeg)
 
-![1](/all-the-worlds-money.png)
